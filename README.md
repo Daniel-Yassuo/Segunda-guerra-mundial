@@ -1,1 +1,1 @@
-2a-guerra-mundial
+Segunda guerra mundial
